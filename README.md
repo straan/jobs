@@ -45,7 +45,8 @@ Bangkok
 ## What's next:
 - After you applied we will arrange an online call with you, after that it's going to be face to face meeting with successful candidates.
 - After face to face meeting, if everything is ok, we can start to work and innovate together:)
-- Applications are also can be made by sending resume by email to : salihkemaloglu@protonmail.com
+- Applicants should send resume to : salihkemaloglu@protonmail.com
+
 
 Moove-it
 Today
