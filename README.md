@@ -1,5 +1,5 @@
 ## Job Description
-Part-time Job Description  
+Part-time Job   
 Location  
 Bangkok  
 
