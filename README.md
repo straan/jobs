@@ -48,5 +48,5 @@ Bangkok
 - Applicants should send resume to : salihkemaloglu@protonmail.com
 
 
-Moove-it
+Move-it
 Today
