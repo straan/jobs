@@ -1,7 +1,7 @@
 ## Job Description
 Part-time Job   
 Location  
-Bangkok  
+Pattaya/Bangkok  
 
 ## What We're Looking For:
 - We are looking for someone who wants to become a Mobile developer.
